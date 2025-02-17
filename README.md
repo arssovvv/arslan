@@ -1,2 +1,0 @@
-# arslan
-the wolf
